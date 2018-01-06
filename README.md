@@ -1,0 +1,2 @@
+# panchakarma
+Panchakarma means fivetreatments which is advocated in Ayurveda to eliminate the excess toxins which is left over by the diseases and poor nutrition. Panchakarma balances the vitiated doshas, pacifies the aggravated doshas from the body. Panchakarma is the shodhana therapy which includes procedures that eradicate the vitiated humors from the body by 5 types of karmas (therapy): Vamana (Emesis) Virechana (Purgation) Vasti (Enema) Nasya (Nasal errhines) Rakt Mokshan (blood letting)
